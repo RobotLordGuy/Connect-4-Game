@@ -1,1 +1,1 @@
-AI was used to enhance visual quality.
+AI assisted me in the enhancement of the visual quality.
